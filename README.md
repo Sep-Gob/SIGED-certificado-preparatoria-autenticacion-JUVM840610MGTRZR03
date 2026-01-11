@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-JUVM840610MGTRZR03
+JUVM840610MGTRZR03
